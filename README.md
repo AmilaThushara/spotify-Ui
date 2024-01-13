@@ -1,1 +1,1 @@
-![Untitled-1](https://github.com/AmilaThushara/spotify-Ui/assets/80099554/273a53ac-ab04-4133-9107-5f2ed2982fc6)
+![Untitled-1](https://github.com/AmilaThushara/spotify-Ui/assets/80099554/1f375c7d-8b15-4fda-bd28-21631cb20740)
